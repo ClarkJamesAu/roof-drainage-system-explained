@@ -3,7 +3,7 @@
 
 In my experience working around roofing systems, most people tend to focus only on visible elements such as roofing sheets, leaks or surface damage. What often gets ignored is how water actually behaves once it reaches the roof surface. This is where the drainage system becomes the most important structural component, even though it is rarely treated that way.
 
-When rain hits a roof, it immediately begins moving across the surface. The steeper the pitch, the faster the water accelerates toward the edges. If that water is not captured and redirected at the correct point, it begins interacting with structural areas that are not designed to handle constant moisture exposure. Professionals working with [roofing Adelaide](https://kompaqroofing.com.au/) systems often explain that the real purpose of a roof is not only to block water, but to control how it leaves the structure completely.
+When rain hits a roof, it immediately begins moving aсross the surface. The steeper the pitch, the faster the water accelerates toward the edges. If that water is not captured and redirected at the correct point, it begins interacting with structural areas that are not designed to handle constant moisture exposure. Professionals working with [roofing Adelaide](https://kompaqroofing.com.au/) systems often explain that the real purpose of a roof is not only to block water, but to control how it leaves the structure completely.
 
 What I’ve seen across multiple properties is that most roofing problems do not begin with visible failure. They start with inefficient drainage. Water slows down, changes direction, or remains in certain areas longer than intended. Over time, this creates conditions where structural materials are exposed to repeated moisture cycles.
 

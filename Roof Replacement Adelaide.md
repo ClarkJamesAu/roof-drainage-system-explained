@@ -1,4 +1,4 @@
-# Roof Replacement Adelaide: Why Partial Fixes Often Lead to Bigger Problems
+# Roof-Replacement-Adelaide: Why Partial Fixes Often Lead to Bigger Problems
 
 When people first notice issues with their roof, the instinct is usually to fix only what’s visible. A leak here, a loose sheet there — it feels logical to patch things up and move on.
 
